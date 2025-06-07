@@ -1,5 +1,5 @@
 # 👋 Hi, I'm Najmeh 
-🧠💻 **ML Engineer | AI & Data Scientist | Programmer | Content Creator | Digital Marketing Specialist | Exploring AI in Fashion**   
+🧠💻 **ML Engineer | AI & Data Scientist | Programmer | Exploring AI in Fashion | Content Creator | Digital Marketing Specialist**   
 🌍 Based in Mashhad, Iran  
 
 🔗 **Connect with me:**  
