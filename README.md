@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Najmeh 
+# 👋 Hi, I'm Najme(Astella)
 🧠💻 **ML Engineer | AI & Data Scientist | Exploring AI in Fashion | Programmer | Content Creator | Digital Marketing Specialist**   
 🌍 Based in Mashhad, Iran  
 
